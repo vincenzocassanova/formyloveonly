@@ -1,2 +1,2 @@
 # formyloveonly
-FOR MY OVE ONLY 
+FOR MY LOVE ONLY 
